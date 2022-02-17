@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **aalok.joshi123@gmail.com or linkedin.com/in/aalokjoshi113/**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1La_DERcUOBHKd6lhvMg3q1l4eZssPEtU6lWtsAf51rQ/edit?usp=sharing](https://docs.google.com/document/d/1La_DERcUOBHKd6lhvMg3q1l4eZssPEtU6lWtsAf51rQ/edit?usp=sharing)
+- 📄 Know about my experiences [Aalok's Resume](https://docs.google.com/document/d/1La_DERcUOBHKd6lhvMg3q1l4eZssPEtU6lWtsAf51rQ/edit?usp=sharing)
 
 - ⚡ Fun fact **I play the French Reed Organ aka the Harmonium**
 
