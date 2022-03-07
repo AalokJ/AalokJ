@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [Aalok's Resume](https://docs.google.com/document/d/1La_DERcUOBHKd6lhvMg3q1l4eZssPEtU6lWtsAf51rQ/edit?usp=sharing)
 
-- ⚡ Fun fact **I play the French Reed Organ aka the Harmonium**
+- ⚡ Fun fact **I play the French Reed Organ aka the Harmonium!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
